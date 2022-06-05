@@ -8,18 +8,18 @@
 
 ## Contact information
 
-**Phone:** +375 (29) 142-83-61\
-**E-mail:**  <pineapplepear55@gmail.com>\
-**Telegram:** @TheShrimpy\
+**Phone:** +375 (29) 142-83-61 \
+**E-mail:**  <pineapplepear55@gmail.com> \
+**Telegram:** @TheShrimpy \
 **GitHub:**  [Lex-pineapple](https://github.com/Lex-pineapple)
 
 ---
 
 ## About Myself:
 
-Currently I work as a Junior Researcher at Nathional Academy of Sciences of Belarus and a part-time freelance designer. Coding was a long-term interest of mine, I started studying different programming languages but without having any clear course I never settled on any. Being a fast learner I am adept at mastering new techniques and gaining new skills. I am a good team worker in addition to my having good interpersonal skills and in general being an outgoing person. I am a very determined person, therefore once I start a project I always finish it as soon as possible. 
+Currently, I work as a part-time freelance designer and a junior researcher at Belarus National Academy of Sciences. Coding has long been a hobby of mine, and I beI believe that once I gain the right education and experience I would become  and have move ways to develop myself.an learning many programming languages but never settled on one due to a lack of a defined direction. Being a quick learner I am adept at acquiring new techniques and gaining new skills. In addition to having good interpersonal skills and being an outgoing person, I am an effective team player. I am a very determined person, therefore whenever I start a project, I make every effort to complete it as quickly as possible.
 
-I believe that with proper knowledge and experience I would be open to new opportunities and have novel ways to further develop my skills and prove myself.
+I believe that once I gain the right education and experience I would become a professional developer and have move ways to expand my knowledge.
 
 ---
 
