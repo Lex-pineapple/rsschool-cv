@@ -17,7 +17,7 @@
 
 ## About Myself:
 
-Currently, I work as a part-time freelance designer and a junior researcher at Belarus National Academy of Sciences. Coding has long been a hobby of mine, and I beI believe that once I gain the right education and experience I would become  and have move ways to develop myself.an learning many programming languages but never settled on one due to a lack of a defined direction. Being a quick learner I am adept at acquiring new techniques and gaining new skills. In addition to having good interpersonal skills and being an outgoing person, I am an effective team player. I am a very determined person, therefore whenever I start a project, I make every effort to complete it as quickly as possible.
+Currently, I work as a part-time freelance designer and a junior researcher at Belarus National Academy of Sciences. Coding has long been a hobby of mine, and I began learning many programming languages but never settled on one due to a lack of a defined direction. Being a quick learner I am adept at acquiring new techniques and gaining new skills. In addition to having good interpersonal skills and being an outgoing person, I am an effective team player. I am a very determined person, therefore whenever I start a project, I make every effort to complete it as quickly as possible.
 
 I believe that once I gain the right education and experience I would become a professional developer and have move ways to expand my knowledge.
 
