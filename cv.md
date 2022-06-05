@@ -8,9 +8,9 @@
 
 ## Contact information
 
-**Phone:** +375 (29) 142-83-61
-**E-mail:**  <pineapplepear55@gmail.com>
-**Telegram:** @TheShrimpy
+**Phone:** +375 (29) 142-83-61\
+**E-mail:**  <pineapplepear55@gmail.com>\
+**Telegram:** @TheShrimpy\
 **GitHub:**  [Lex-pineapple](https://github.com/Lex-pineapple)
 
 ---
