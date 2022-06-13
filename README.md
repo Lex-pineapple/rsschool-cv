@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Lex-pineapple.github.io/rsschool-cv/
